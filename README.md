@@ -1,4 +1,7 @@
-### Hi there 👋
+### developer, husband, father of daughters, enjoy, responsibility!
+- ⚡resume : https://bit.ly/3tCVxZs
+- 🌱book-shelf (Today I Learn) : https://bit.ly/3ruWTmt
+
 
 <!--
 **OsoriAndOmori/OsoriAndOmori** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
